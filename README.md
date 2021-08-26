@@ -1,4 +1,4 @@
-![](asustado.png)
+![](calabaza.png)
 
 ### :nail_care: Jazmin Salas Paredes
 ###### :school_satchel: Instituto Tecnologico de Tijuana 
